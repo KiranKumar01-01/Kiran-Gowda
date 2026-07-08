@@ -78,7 +78,7 @@ AI-powered Post Surgery Recovery Tracker
 📧 Email: kirank75884@gmail.com
 
 💼 LinkedIn:
-https://linkedin.com/in/YOUR-LINK
+[https://linkedin.com/in/YOUR-LINK](https://www.linkedin.com/in/kiran-kumar-n-s-636a53331/?locale=%7D%7B)
 
 💻 Portfolio:
 Coming Soon
